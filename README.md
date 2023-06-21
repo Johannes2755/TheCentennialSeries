@@ -7,3 +7,4 @@ https://www.reddit.com/r/formula1/comments/vkf7rb/the_centennial_series_episode_
 https://www.reddit.com/r/formula1/comments/w0gree/the_centennial_series_episode_4_the_1922_french/
 https://www.reddit.com/r/formula1/comments/x78pkm/the_centennial_series_episode_5_1922_italian/
 https://www.reddit.com/r/formula1/comments/12oh2c2/the_centennial_series_s2e1_1923_targa_florio_a/
+https://www.reddit.com/r/formula1/comments/13wmefs/the_centennial_series_s2e2_1923_indianapolis_500/
